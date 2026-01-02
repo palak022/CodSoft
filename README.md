@@ -81,8 +81,7 @@ A heartfelt thanks to **CodSoft** for providing this internship opportunity and 
 ---
 
 ## 📬 **Connect With Me**
-- **LinkedIn:** _Add your LinkedIn profile link_  
-- **GitHub:** _Add your GitHub profile link_  
+- **Email:** pardeshipalak51@gmail.com
 
 ---
 
